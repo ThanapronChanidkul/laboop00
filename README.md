@@ -1,3 +1,4 @@
 # laboop00
-this is my first repo
-my is godnot
+ธนาพร ชนิดกุล
+653450092-2
+thanapron.c@kkumail.com
